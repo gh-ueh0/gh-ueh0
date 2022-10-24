@@ -1,4 +1,5 @@
 - 👋 Hi, I’m @gh-ueh0
+- This account may be no longer used since 2022-10-24.
 - Mainly used for my website publication.
 - 👀 I’m interested in ... (Not yet specified)
 - 🌱 I’m currently learning ... (Not yet specified)
